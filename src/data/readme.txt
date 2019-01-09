@@ -1,0 +1,1 @@
+数据来源：Link to the data: ​https://www.fec.gov/files/bulk-downloads/2018/indiv18.zip*
